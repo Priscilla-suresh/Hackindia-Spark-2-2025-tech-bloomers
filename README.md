@@ -1,1 +1,1 @@
-# Hackindia-Spark-2-2025-tech-bloomers
+# Hackindia-Spark-2-2025-tech-titans
